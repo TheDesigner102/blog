@@ -40,3 +40,12 @@ These are some common use cases for a logo design:
 > **Considering the popularity of responsive logos, you do not have to limit yourself to one standard design. Plus, you always have the best logo for any situation.**
 
 [![Image by Salih Küçükağa.](https://cdn.dribbble.com/users/58267/screenshots/6720627/hemson-pt4.jpg "Image by Salih Küçükağa.")](https://dribbble.com/salihkucukaga "Image by Salih Küçükağa.")
+
+### Let's vectorize
+By now, you should have lots of logo sketches as well as a better sense of what you want the final logo to look like. Of those sketches, take around 3 of your best ones and recreate them in your design software. This is where your final logo really starts taking shape. In your digital draft, you can experiment with logo colors as well as typography.
+
+Once you have a solid draft, go the extra mile to create a presentation to showcase your logo. This involves presenting the flat logo along with any variations, an overlay with brand imagery, and mockups of the logo out in the real world. 
+
+> **The goal is to communicate your vision of the brand with a persuasive, knockout logo presentation.**
+
+[![Image by Ramotion](https://cdn.dribbble.com/users/25514/screenshots/8862188/media/848e59dfca1d6c3244e1ae0208304f92.png "Image by Ramotion")](https://dribbble.com/Ramotion "Image by Ramotion")
