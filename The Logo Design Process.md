@@ -49,3 +49,12 @@ Once you have a solid draft, go the extra mile to create a presentation to showc
 > **The goal is to communicate your vision of the brand with a persuasive, knockout logo presentation.**
 
 [![Image by Ramotion](https://cdn.dribbble.com/users/25514/screenshots/8862188/media/848e59dfca1d6c3244e1ae0208304f92.png "Image by Ramotion")](https://dribbble.com/Ramotion "Image by Ramotion")
+
+### Sketching is fun!
+If you already have some logo ideas, you might be tempted to jump ahead into logo design software. But before you start proceeding to your final design, take some time to sketch plenty of ideas.
+
+> **Sketching is cheap, easy, and fast, but most importantly, it is an effective brainstorming tool.**
+
+Once you have settled on your preferred concept, try sketching some variations on it, adding or removing elements, changing minor details, and beginning typography explorations.
+
+[![Image by Gert van Duinen](https://cdn.dribbble.com/users/13604/screenshots/14239761/media/f6ed1997373c24ffc9df00cb9dd24697.jpg "Image by Gert van Duinen")](https://dribbble.com/cresk "Image by Gert van Duinen")
